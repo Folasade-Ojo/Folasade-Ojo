@@ -8,7 +8,7 @@
 
 - 🤔 I am interested in roles within the manufacturing industry and the banking sector, and I am confident that I can bring value and make meaningful contributions towards the company's success.
 
-- 📫 I can be reached on [LinkedIn](https://www.linkedin.com/in/folasade-theresa-ojo-39769313b/) or via [email](ojofolasade.t@gmail.com)
+- 📫 I can be reached on [LinkedIn](https://www.linkedin.com/in/folasade-theresa-ojo-39769313b/) 
 
 - 😄 I considered myself the biggest Rafael Nadal fan there is! 
 
