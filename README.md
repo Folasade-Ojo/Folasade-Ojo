@@ -2,7 +2,7 @@
 
 - ✨ I have a keen interest in Data Analysis, Inventory Management, Machine Learning, Statistics, Data Visualization, and in Big Data technologies such as GCP, Apache Hive, Hadoop, and Spark.
 
-- 🔭 I currently leverage advanced Excel techniques, Tableau, SQL, Power Query, and Power BI to answer business questions.
+- 🔭 My professional background involves utilizing advanced Excel techniques, Tableau, SQL, Power Query, and Power BI to answer business questions.
 
 - 👯 I’m looking to collaborate on projects that would help me improve my skills.
 
