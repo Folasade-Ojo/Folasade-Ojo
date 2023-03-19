@@ -10,6 +10,6 @@
 
 - 📫 I can be reached on [LinkedIn](https://www.linkedin.com/in/folasade-theresa-ojo-39769313b/) 
 
-- 😄 I considered myself the biggest Rafael Nadal fan there is! 
+- 😄 I considered myself to be the biggest Rafael Nadal fan out there!
 
 - ⚡ Fun fact: I am a dreamer.
