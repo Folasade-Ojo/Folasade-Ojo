@@ -6,7 +6,7 @@
 
 - 👯 I’m looking to collaborate on projects that would help me improve my skills.
 
-- 🤔 I am interested in roles within the manufacturing industry, Telecommunication, and the banking sector, and I am confident that I can bring value and make meaningful contributions towards the company's success.
+- 🤔 I am interested in roles within the manufacturing industry, telecommunication industry, and the banking sector, and I am confident that I can bring value and make meaningful contributions towards the company's success.
 
 - 📫 I can be reached on [LinkedIn](https://www.linkedin.com/in/folasade-theresa-ojo-39769313b/) 
 
