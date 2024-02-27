@@ -1,4 +1,4 @@
-### Hi there 👋 My name is Folasade Theresa
+### Hi there 👋 My name is Theresa
 
 - ✨ I have a keen interest in Data Analysis, Inventory Management, Machine Learning, Statistics, Data Visualization, and in Big Data technologies such as GCP, Apache Hive, Hadoop, and Spark.
 
