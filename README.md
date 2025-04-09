@@ -8,8 +8,6 @@
 
 - 🤔 I am interested in roles within the retail, telecommunication industry, and the banking sector, and I am confident that I can bring value and make meaningful contributions towards the company's success.
 
-- 📫 I can be reached on [LinkedIn](https://www.linkedin.com/in/theresa-ojo-39769313b) 
-
 - 😄 I considered myself to be the biggest Rafael Nadal fan out there!
 
 - ⚡ Fun fact: I am a dreamer.
